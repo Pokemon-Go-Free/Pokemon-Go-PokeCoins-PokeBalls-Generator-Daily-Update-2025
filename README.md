@@ -2,7 +2,7 @@
 
 Welcome to the latest **Pokemon Go PokeCoins & PokeBalls Generator Daily Update** for 2025! We have an exciting offer for you at the beginning of this article. Don't miss out on this exclusive opportunity to **claim your FREE daily PokeCoins and PokeBalls** through our newly updated generator. Simply follow the steps below to unlock your free rewards and stay ahead of the competition!
 
-### [✅👉CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/pokemon/go/free/)
+### [✅👉 CLICK HERE TO GET NOW FREE](https://justfree.xyz/pokemon/go/)
 
 Before diving into the updates, let's highlight how you can take advantage of our **free PokeCoins & PokeBalls Generator**. It’s simple, quick, and completely safe. This generator is fully compatible with the latest version of Pokemon Go in 2025, ensuring that you get the best rewards with no risk. Here's how you can get started:
 
